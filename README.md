@@ -1,1 +1,1 @@
-# Submitted-Projects
+# Here are some projects submitted by developers.
